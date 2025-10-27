@@ -1,1 +1,1 @@
-[TUV-45712.pdf](https://github.com/user-attachments/files/23175703/TUV-45712.pdf)
+![Image](https://github.com/user-attachments/assets/cb5b983f-4cf6-4d79-a1c4-608694df38d4)
